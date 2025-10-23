@@ -19,8 +19,7 @@
 ✦ 𝙃𝙚𝙡𝙡𝙤 .    
 My name is **Cael**
 
-You'll often find me with friends, 
-but feel free to whisper.
+I'm new to all this but *Xuan* helps me.
 
 I'm not very good at conversations, so please forgive me in advance.
 
